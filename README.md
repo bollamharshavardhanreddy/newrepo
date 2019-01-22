@@ -21,6 +21,54 @@ Martin Luther King Jr. (January 15, 1929 – April 4, 1968) was an American Bapt
 9. Faith is taking the first step even when you don't see the whole staircase.
 1. Morality cannot be legislated, but behavior can be regulated. Judicial decrees may not change the heart, but they can restrain the heartless.
 
+## Awards and Honors
+
+- Jamnalal Bajaj Foundation Award for Promoting Gandhian Values Outside India, 2018
+
+- John W. Blassingame Award, Southern Historical Association, 2018
+
+- Tikkun Award, Network of Spiritual Progressives, 2016
+
+- Freedom Flame Award, Selma Bridge Crossing Jubilee, Inc., 2016
+
+- Honorary Doctorate, Westminster College, 2015 
+
+- Joseph B. and Toby Gittler Prize, Brandeis University, 2012
+
+- KQED/Union Bank "Local Hero of the Year" Award, 2011
+
+- Community Leader Award, Peninsula Bay Chapter of The Links, Inc., 2010
+
+- Martin Luther King, Jr. Research Fellowship, Howard Gotlieb Archival Research Center at Boston University, 2009
+
+- Honorary Doctorate from Niagara University, 2008
+
+- Honorary Doctorate from Morehouse College, 2007
+
+- Commendation Resolution by California Legislative Black Caucus, California Assembly, Sacramento, 2007
+
+- Gandhi King Ikeda Award, Martin Luther King Jr. International Chapel, Gandhi Institute for Reconciliation, Morehouse College, Atlanta,   2004
+
+- Member of winning team in international design competition for the National Martin Luther King, Jr., Memorial in Washington, D. C.,     2000
+
+- Founders Award for Historical Scholarship from the Historical Society of Pennsylvania, 2000
+
+- Honorary Doctorate from Pacific Graduate School of Psychology (now Palo Alto University), 1995
+
+- Fellowship, Center for Advanced Study in the Behavioral Sciences, 1993-94
+
+- Elected member of Society of American Historians, 1991
+
+- Rosa Parks Distinguished Citizen Award, Martin Luther King, Jr., Association of Santa Clara Valley, 1991
+
+- National Endowment for the Humanities Fellowship for Independent Study and Research (declined), 1986
+
+- Frederick Jackson Turner Award of the Organization of American Historians for In Struggle: SNCC and the Black Awakening of the 1960's,   1982
+
+- Visiting Fellowship, Center for the Study of Civil Rights and Race Relations, Duke University, Durham, North Carolina, 1978
+
+- Andrew Mellon Fellowship, 1977
+
 ## Links
 
 - [Webpage](https://en.wikipedia.org/wiki/Civil_rights_movement "Civil rights movement")
