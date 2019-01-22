@@ -73,3 +73,8 @@ Martin Luther King Jr. (January 15, 1929 – April 4, 1968) was an American Bapt
 
 - [Webpage](https://en.wikipedia.org/wiki/Civil_rights_movement "Civil rights movement")
 - [Source](https://en.wikipedia.org/wiki/Martin_Luther_King_Jr. "Martin Luther King Jr.")
+
+### Thanks
+Bollam HarshaVardhan Reddy
+s534624@nwmissouri.edu
+
