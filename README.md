@@ -6,7 +6,7 @@ Martin Luther King Jr. (January 15, 1929 – April 4, 1968) was an American Bapt
 
 ### Image
 
-![Hosted image](https://www.google.com/url?sa=i&source=images&cd=&cad=rja&uact=8&ved=2ahUKEwj2xfn4kYDgAhWri60KHTu_DsYQjRx6BAgBEAU&url=https%3A%2F%2Ffox8.com%2F2019%2F01%2F16%2Fcelebrating-martin-luther-king-jr-day-2019-in-northeast-ohio%2F&psig=AOvVaw2XqR7b9BpPNrP7XwVESeHg&ust=1548203584422081 "Martin Luther King")
+![Hosted image](https://localtvwjw.files.wordpress.com/2019/01/gettyimages-2674125.jpg?quality=85&strip=all&w=400&h=225&crop=1 "Martin Luther King")
 
 ## Links
 
